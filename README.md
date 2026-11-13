@@ -13,7 +13,19 @@
 <p align="center"> <a href="https://hits.sh/github.com/dazstro/"><img alt="Hits" src="https://hits.sh/github.com/dazstro.svg?label=midnighttragedy&color=d7f6ff&labelColor=302f3c&logo=archiveofourown"/> </p>
 <details>
 <summary>$\texttt{\color{#b685ff}⋆˚꩜｡ ABOUT}$ </summary>
-<p align="center">  test </p>
+  <img width="139" height="79" alt="image" src="https://github.com/user-attachments/assets/61c179c4-b93a-4fd4-937f-9cc00a92ab46" /> <img width="139" height="79" alt="image" src="https://github.com/user-attachments/assets/32eafd9c-6631-4a06-907e-ce6c8ae9d453" /> <img width="139" height="79" alt="image" src="https://github.com/user-attachments/assets/bc8f97ad-c485-4a14-8643-590d4c93bc65" />
+
+<p align="center">  so / sx 379 3w4 EFVL S/L/U[A]I ESFJ MOh[I]dEg </p>
+
+ֺּׅ𓏽⑅ HAI HAI! Moi nyamez MTC ^w^ , i liek mmmidnighttragedy can kyu tell. Ummm i liek midnighttragedy, doodle world, dandys world, loomian legacy, etc. iwcare nya...
+
+i go by they/shi/any— im a malofem lesbian nya nd mmoi timezone is GMT+8 ! i enjoy hwaving furiends nd stuff um um um i liek midnighttragedy and unique headcanons!!!!! dyont be afraid to talk to mii i liek talkign a lot nya
+
+i haaaabe audhd anxiety cptsd um major depressive disorder bpd ocd ummm dpd um. i have too much #dontrmeember 
+
+<b>DNI IF YOU HATE MIDNIGHTTRAGEDY OR ACTIVELY ANY OTHER ASTRO SHIP. I AM A MONOSHIPPER, PLEASE RESPECT MY NICE BOUNDARIES. PLEASE DON'T MENTION OTHER ASTRO SHIPS!!! love dat</b>
+<i>Astro yumes dni as well, One of my alters hates astro yumes and he'll unironically hide kyu fur LIFE</i>
+
 </details>
 
 <img width="2000" height="400" alt="image" src="https://github.com/user-attachments/assets/4285a0b4-2f95-44a9-99f7-057fdabd1e05" />
