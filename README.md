@@ -9,5 +9,9 @@
 
 <p align="center">$\texttt{\color{#d7b8ff}Ი𐑼  THE NUMBER ONE MIDNIGHTTRAGEDY FAN!}$</p>
 <p align="center"> <a href="https://hits.sh/github.com/dazstro/"><img alt="Hits" src="https://hits.sh/github.com/dazstro.svg?label=midnighttragedy&color=d7f6ff&labelColor=302f3c&logo=archiveofourown"/> </p>
+<details>
+<summary>$\texttt{\color{#b685ff}⋆˚꩜｡ ABOUT}$</summary>
+ test
+</details>
 
 <img width="2000" height="400" alt="image" src="https://github.com/user-attachments/assets/4285a0b4-2f95-44a9-99f7-057fdabd1e05" />
