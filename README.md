@@ -5,5 +5,7 @@
 
 <p align="center"> <img width="479" height="71" alt="midnighttragedy" src="https://github.com/user-attachments/assets/83b73432-757c-4434-8456-3dfa00417bd6" /> </p>
 
+<img width="900" height="640" alt="image" src="https://github.com/user-attachments/assets/b8d9188c-e407-4b28-8f83-d2318c544f84" />
+
 <p align="center">$\texttt{\color{#d7b8ff}Ი𐑼  THE NUMBER ONE MIDNIGHTTRAGEDY FAN!}$</p>
 <p align="center"> <a href="https://hits.sh/github.com/dazstro/"><img alt="Hits" src="https://hits.sh/github.com/dazstro.svg?label=midnighttragedy&color=d7f6ff&labelColor=302f3c&logo=archiveofourown"/> </p>
