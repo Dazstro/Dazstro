@@ -23,8 +23,11 @@ i go by they/shi/any— im a malofem lesbian nya nd mmoi timezone is GMT+8 ! i e
 
 i haaaabe audhd anxiety cptsd um major depressive disorder bpd ocd ummm dpd um. i have too much #dontrmeember 
 
-<b>DNI IF YOU HATE MIDNIGHTTRAGEDY OR ACTIVELY ANY OTHER ASTRO SHIP. I AM A MONOSHIPPER, PLEASE RESPECT MY NICE BOUNDARIES. PLEASE DON'T MENTION OTHER ASTRO SHIPS!!! love dat</b>
+<b>DNI IF YOU HATE MIDNIGHTTRAGEDY OR ACTIVELY SHIP ANY OTHER ASTRO SHIP. I AM A MONOSHIPPER, PLEASE RESPECT MY NICE BOUNDARIES. PLEASE DON'T MENTION OTHER ASTRO SHIPS!!! love dat</b>
+
 <i>Astro yumes dni as well, One of my alters hates astro yumes and he'll unironically hide kyu fur LIFE</i>
+
+also, by actively i mean kyure liek. alwayz doigm it nyaaa
 
 </details>
 
