@@ -29,6 +29,8 @@ i haaaabe audhd anxiety cptsd um major depressive disorder bpd ocd ummm dpd um. 
 
 also, by actively i mean kyure liek. alwayz doigm it nyaaa
 
+ive stopped headcanoning did rnd, im sorry i did not know it was ableist. the info in my sp is outdated i dyunno when ill fix dat
+
 </details>
 
 <img width="2000" height="400" alt="image" src="https://github.com/user-attachments/assets/4285a0b4-2f95-44a9-99f7-057fdabd1e05" />
